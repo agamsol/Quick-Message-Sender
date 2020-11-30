@@ -1,2 +1,2 @@
 # To get Premium version please join our discord server...
-### [Discord Server](https://discord.gg/jwtswrxuAg) (This Costs 5USD).
+### [Discord Server](https://discord.gg/jwtswrxuAg) (Premium Version Costs 5USD).
