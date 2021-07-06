@@ -1,2 +1,2 @@
 # Quick-Webhook-Sender
-### Latest.exe is version 1.0.0 FREE
+### Latest.exe is version 2.0 (Free version)
